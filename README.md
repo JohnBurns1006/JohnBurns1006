@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning HTML and javascript
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about anything you need
-- 📫 How to reach me: johnathan.burns@gmail.com
+- 📫 How to reach me: johnathan.burns1010@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I spent almost ten years in Newfoundland Canada
 -->
